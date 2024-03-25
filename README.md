@@ -5,7 +5,7 @@
 - Me gusta volver a entrerrios a ver a mis viejos y amigos
 - Me gusta ir al gym
 - Vivo en un pueblo chico , pero de infierno grande
-- Es mi segundo año en la carrera , y la veedad me viene gustando mucho 
+- Es mi segundo año en la carrera , y la verdad me viene gustando mucho 
 ---
 ***Foto mia sacandola x3***
 
