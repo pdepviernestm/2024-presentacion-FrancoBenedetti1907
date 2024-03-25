@@ -1,5 +1,5 @@
 ## Franco Benedetti
-### . Sobre Mi
+###  Sobre Mi
 - Entrerriano en Capital
 - Jugador amateour de padel (4ta ;) )
 - Me gusta volver a entrerrios a ver a mis viejos y amigos
