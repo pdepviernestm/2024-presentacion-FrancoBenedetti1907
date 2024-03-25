@@ -1,10 +1,10 @@
-# presentacion-
-
-- Escriban presentación sobre ustedes.
-- Suban la presentación a Git.
-- Realicen algun cambio.
-- Suban los nuevos cambios.
-- Compartan el link por discord
-- Hagan algun comentario sobre el repositorio de algun otro compañere. Al menos 2.
-
-Ya saben usar git!
+## Franco Benedetti
+### . Sobre Mi
+- Entrerriano en Capital
+- Jugador amateour de padel (4ta ;) )
+- Me gusta volver a entrerrios a ver a mis viejos y amigos
+- Me gusta ir al gym
+- Vivo en un pueblo chico , pero de infierno grande
+---
+***Foto mia sacandola x3***
+!![WhatsApp Image 2024-03-25 at 17 05 17_ae2ac017](https://github.com/pdepviernestm/2024-presentacion-FrancoBenedetti1907/assets/151104177/0ad5b88f-8247-439f-a885-4f6a76350f09)
