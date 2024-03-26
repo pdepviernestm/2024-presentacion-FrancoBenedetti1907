@@ -1,6 +1,7 @@
 ## Franco Benedetti
 ###  Sobre Mi
-- Entrerriano en Capital
+- Entrerriano en Capital.
+- Oriundo de Larroque , a kilometros de Gualeguaycgu ( Carnaval del País )
 - Jugador amateour de padel (4ta ;) )
 - Me gusta volver a entrerrios a ver a mis viejos y amigos
 - Me gusta ir al gym
